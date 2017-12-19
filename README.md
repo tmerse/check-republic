@@ -1,1 +1,1 @@
-# check-republic
+# czech-republic
